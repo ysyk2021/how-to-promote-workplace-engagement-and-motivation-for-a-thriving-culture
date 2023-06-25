@@ -1,5 +1,4 @@
-Chapter 7: Leadership Support: Modeling Engaged and Motivated Behaviors and Attitudes
-=====================================================================================
+# Modeling Engaged and Motivated Behaviors and Attitudes
 
 Leadership plays a crucial role in promoting workplace engagement and motivation. In this chapter, we will discuss how leaders can model engaged and motivated behaviors and attitudes to create a positive work environment.
 

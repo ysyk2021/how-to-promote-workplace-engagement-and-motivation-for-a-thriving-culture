@@ -1,5 +1,4 @@
-Chapter 1: Defining Workplace Engagement and Motivation: Examples of Successful Workplace Engagement and Motivation Initiatives in Practice
-===========================================================================================================================================
+# Examples of Successful Workplace Engagement and Motivation Initiatives in Practice
 
 Defining workplace engagement and motivation is an important first step in promoting a thriving culture. In this chapter, we will explore examples of successful workplace engagement and motivation initiatives in practice.
 

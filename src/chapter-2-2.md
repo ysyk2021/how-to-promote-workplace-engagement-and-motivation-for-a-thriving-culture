@@ -1,5 +1,4 @@
-Chapter 1: Defining Workplace Engagement and Motivation: The Benefits of Workplace Engagement and Motivation
-============================================================================================================
+# The Benefits of Workplace Engagement and Motivation
 
 Defining workplace engagement and motivation is an important first step in promoting a thriving culture. In this chapter, we will explore the benefits of workplace engagement and motivation.
 

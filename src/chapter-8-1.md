@@ -1,5 +1,4 @@
-Chapter 7: Leadership Support: The Role of Leadership in Promoting Workplace Engagement and Motivation
-======================================================================================================
+# The Role of Leadership in Promoting Workplace Engagement and Motivation
 
 Leadership plays a crucial role in promoting workplace engagement and motivation. In this chapter, we will discuss how leadership support can create a positive work environment.
 

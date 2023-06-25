@@ -1,5 +1,4 @@
-Chapter 5: Supporting Employee Well-being: Prioritizing Work-Life Balance
-=========================================================================
+# Prioritizing Work-Life Balance
 
 Supporting employee well-being is essential for promoting workplace engagement and motivation. In this chapter, we will discuss how prioritizing work-life balance can create a positive work environment.
 

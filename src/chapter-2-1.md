@@ -1,5 +1,4 @@
-Chapter 1: Defining Workplace Engagement and Motivation: What is Workplace Engagement and Motivation?
-=====================================================================================================
+# What is Workplace Engagement and Motivation?
 
 Defining workplace engagement and motivation is an important first step in creating a thriving culture. In this chapter, we will explore what workplace engagement and motivation are and why they matter.
 

@@ -1,4 +1,4 @@
-Introduction: Purpose of the Book
+Purpose of the Book
 =================================
 
 The purpose of this book is to provide insights and strategies for promoting workplace engagement and motivation within organizations. Creating a thriving culture is essential for the success of any organization, and promoting workplace engagement and motivation is critical for achieving this.

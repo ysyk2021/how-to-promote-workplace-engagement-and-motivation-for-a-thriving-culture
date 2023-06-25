@@ -1,5 +1,4 @@
-Chapter 5: Supporting Employee Well-being: Providing Resources for Mental and Physical Health
-=============================================================================================
+# Providing Resources for Mental and Physical Health
 
 Supporting employee well-being is essential for promoting workplace engagement and motivation. In this chapter, we will discuss how providing resources for mental and physical health can create a positive work environment.
 

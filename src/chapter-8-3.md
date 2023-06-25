@@ -1,5 +1,4 @@
-Chapter 7: Leadership Support: Addressing Challenges and Setbacks
-=================================================================
+# Addressing Challenges and Setbacks
 
 Leadership support is essential for promoting workplace engagement and motivation. In this chapter, we will discuss how leaders can address challenges and setbacks that may arise during the implementation of engagement and motivation strategies.
 

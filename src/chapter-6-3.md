@@ -1,5 +1,4 @@
-Chapter 5: Supporting Employee Well-being: Offering Flexible Work Arrangements
-==============================================================================
+# Offering Flexible Work Arrangements
 
 Offering flexible work arrangements is one strategy for promoting employee well-being and increasing workplace engagement and motivation. In this chapter, we will explore the benefits of flexible work arrangements and strategies for implementing them effectively.
 

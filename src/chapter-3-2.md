@@ -1,5 +1,4 @@
-Chapter 2: The Impact of Workplace Engagement and Motivation on Business Success: The Costs of Disengaged and Demotivated Employees
-===================================================================================================================================
+# The Costs of Disengaged and Demotivated Employees
 
 Workplace engagement and motivation are crucial for business success. In this chapter, we will discuss the costs of disengaged and demotivated employees on organizational performance.
 

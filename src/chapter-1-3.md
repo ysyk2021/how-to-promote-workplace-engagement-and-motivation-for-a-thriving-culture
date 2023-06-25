@@ -1,4 +1,4 @@
-Introduction: Importance of Promoting Workplace Engagement and Motivation for a Thriving Culture
+Importance of Promoting Workplace Engagement and Motivation for a Thriving Culture
 ================================================================================================
 
 Creating a thriving culture is essential for the success of any organization. In order to achieve this, promoting workplace engagement and motivation is critical. In this book, we will explore strategies for promoting workplace engagement and motivation, as well as the benefits of doing so.

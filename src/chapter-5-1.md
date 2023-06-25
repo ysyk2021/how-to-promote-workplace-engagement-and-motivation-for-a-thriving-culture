@@ -1,5 +1,4 @@
-Chapter 4: Recognizing and Rewarding Employee Contributions: Providing Regular Feedback and Recognition
-=======================================================================================================
+# Providing Regular Feedback and Recognition
 
 Recognizing and rewarding employee contributions is essential for promoting workplace engagement and motivation. In this chapter, we will discuss how providing regular feedback and recognition can create a positive work environment.
 

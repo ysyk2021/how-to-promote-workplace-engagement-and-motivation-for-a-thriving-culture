@@ -1,4 +1,4 @@
-Introduction: Overview of Workplace Engagement and Motivation
+Overview of Workplace Engagement and Motivation
 =============================================================
 
 Workplace engagement and motivation are critical factors in creating a thriving culture within an organization. In this book, we will explore what workplace engagement and motivation are, why they matter, and strategies for promoting them effectively.
