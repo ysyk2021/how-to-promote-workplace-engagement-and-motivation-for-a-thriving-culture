@@ -1,4 +1,4 @@
-Conclusion: Summary of Key Points
+Summary of Key Points
 =================================
 
 In this book, we have explored the importance of promoting workplace engagement and motivation for creating a thriving culture within an organization. Here is a summary of the key points covered throughout the book:
