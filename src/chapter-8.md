@@ -26,27 +26,6 @@ It is also important for leaders to remain flexible and open-minded when it come
 
 Leadership plays a critical role in promoting workplace engagement and motivation. In this chapter, we will explore the importance of leadership support in creating a thriving culture, as well as strategies for modeling engaged and motivated behaviors and addressing challenges and setbacks.
 
-The Role of Leadership in Promoting Workplace Engagement and Motivation
------------------------------------------------------------------------
-
-Leadership sets the tone for an organization's culture, and their attitudes and behaviors can have a significant impact on employee engagement and motivation. When leaders prioritize employee well-being, provide opportunities for growth and development, and foster open communication, they create a positive and productive work environment that supports engagement and motivation.
-
-Conversely, when leaders fail to prioritize these factors, they may contribute to low morale, high turnover rates, and decreased productivity.
-
-Modeling Engaged and Motivated Behaviors and Attitudes
-------------------------------------------------------
-
-One effective way for leaders to promote workplace engagement and motivation is by modeling engaged and motivated behaviors and attitudes. This includes demonstrating a strong work ethic, providing recognition and feedback, and communicating clearly and respectfully with employees.
-
-Additionally, leaders can encourage engagement and motivation by actively involving employees in decision-making processes, providing opportunities for skill-building and career development, and fostering a sense of community and collaboration within the workplace.
-
-Addressing Challenges and Setbacks
-----------------------------------
-
-Despite best efforts, there may be times when engagement and motivation levels dip or challenges arise. During these times, it is important for leaders to remain supportive and responsive to employee needs.
-
-This may involve providing additional resources or training, offering flexible work arrangements, or addressing concerns and conflicts in a timely and respectful manner. By remaining attentive and proactive, leaders can help to maintain a positive and productive work environment even during challenging times.
-
 Conclusion
 ----------
 
