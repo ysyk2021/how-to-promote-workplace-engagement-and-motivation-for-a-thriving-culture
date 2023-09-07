@@ -1,5 +1,3 @@
-Chapter 2: The Impact of Workplace Engagement and Motivation on Business Success
-================================================================================
 
 Workplace engagement and motivation have a significant impact on business success. In this chapter, we will discuss the importance of workplace engagement and motivation and the costs of disengaged and demotivated employees.
 

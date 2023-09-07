@@ -1,5 +1,3 @@
-Chapter 3: Creating a Positive Work Environment
-===============================================
 
 A positive work environment is essential for promoting workplace engagement and motivation. When employees feel valued and supported, they are more likely to be committed to their work and perform at their best. In this chapter, we will discuss some effective ways to create a positive work environment.
 

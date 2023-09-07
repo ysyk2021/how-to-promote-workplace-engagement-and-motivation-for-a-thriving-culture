@@ -1,5 +1,3 @@
-Overview of Workplace Engagement and Motivation
-=============================================================
 
 Workplace engagement and motivation are critical factors in creating a thriving culture within an organization. In this book, we will explore what workplace engagement and motivation are, why they matter, and strategies for promoting them effectively.
 
@@ -38,5 +36,4 @@ Conclusion
 ----------
 
 Understanding workplace engagement and motivation is critical for creating a thriving culture within an organization. By promoting workplace engagement and motivation through effective strategies, organizations can create a positive and productive work environment where employees are empowered to succeed and contribute to the success of the organization.
-
 

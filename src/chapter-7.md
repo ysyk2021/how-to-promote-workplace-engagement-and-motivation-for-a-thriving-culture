@@ -1,5 +1,3 @@
-Chapter 6: Implementation
-=========================
 
 Implementing strategies for promoting workplace engagement and motivation is essential for creating a thriving culture. In this chapter, we will discuss some effective ways to implement these strategies, as well as how to overcome barriers to implementation and measure the effectiveness of engagement and motivation strategies.
 

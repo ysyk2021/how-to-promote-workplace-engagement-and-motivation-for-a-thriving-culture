@@ -1,5 +1,3 @@
-Chapter 5: Supporting Employee Well-being
-=========================================
 
 Supporting employee well-being is essential for promoting workplace engagement and motivation. When employees feel supported in their physical and mental health, they are more likely to be committed to their work and perform at their best. In this chapter, we will discuss some effective ways to support employee well-being.
 

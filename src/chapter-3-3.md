@@ -1,4 +1,3 @@
-# The Risks to Employee Productivity, Retention, and Well-being
 
 In this chapter, we will explore the various risks that can negatively impact employee productivity, retention, and well-being within a workplace. It is important for organizations to be aware of these risks in order to proactively address them and create a thriving culture that promotes engagement and motivation.
 
