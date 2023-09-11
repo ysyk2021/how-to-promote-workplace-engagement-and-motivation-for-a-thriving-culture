@@ -1,5 +1,4 @@
-Chapter 10: Addressing New Challenges in Employee Engagement and Motivation
-===========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we'll explore the evolving landscape of employee engagement and motivation, considering the challenges and opportunities that arise in the modern workplace. With the changing dynamics of work, it's essential to adapt strategies to promote engagement and motivation effectively.
 

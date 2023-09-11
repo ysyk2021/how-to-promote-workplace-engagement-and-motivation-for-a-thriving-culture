@@ -1,5 +1,4 @@
-Chapter 2: The Role of Leadership in Promoting Workplace Engagement and Motivation
-==================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we delve into the pivotal role that leadership plays in driving workplace engagement and motivation. Effective leadership is at the core of creating a thriving organizational culture, and this chapter explores how leaders can shape and nurture a motivated and engaged workforce.
 

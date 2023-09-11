@@ -1,5 +1,4 @@
-Chapter 8: Prioritizing Work-Life Balance
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Work-life balance is a critical component of promoting workplace engagement and motivation while cultivating a thriving organizational culture. In this chapter, we will delve into the significance of prioritizing work-life balance and provide strategies for achieving it.
 

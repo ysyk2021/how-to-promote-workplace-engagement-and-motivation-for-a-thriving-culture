@@ -1,5 +1,4 @@
-Chapter 6: Fostering Open Communication and Collaboration
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective communication and collaboration are cornerstones of promoting workplace engagement and motivation within an organization. In this chapter, we will explore strategies for fostering open communication and collaboration to nurture a thriving organizational culture.
 

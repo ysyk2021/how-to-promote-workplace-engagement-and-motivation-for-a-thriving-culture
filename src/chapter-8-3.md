@@ -1,5 +1,4 @@
-Chapter 6: Addressing Challenges and Setbacks
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of promoting workplace engagement and motivation for a thriving culture, challenges and setbacks are inevitable. However, they can be valuable learning opportunities and catalysts for positive change. In this chapter, we will explore strategies for addressing these challenges and setbacks to ensure that your workplace culture continues to thrive.
 

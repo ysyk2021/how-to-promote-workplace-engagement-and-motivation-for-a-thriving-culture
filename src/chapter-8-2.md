@@ -1,5 +1,4 @@
-Chapter 4: Modeling Engaged and Motivated Behaviors and Attitudes
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we delve into the crucial role of modeling engaged and motivated behaviors and attitudes as a powerful strategy for promoting workplace engagement and motivation. Leaders and employees alike play a pivotal role in setting the tone for a thriving culture by exemplifying the very behaviors and attitudes they wish to encourage in others.
 

@@ -1,5 +1,4 @@
-Chapter 7: Leadership Support
-=============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we delve into the critical role of leadership in promoting workplace engagement and motivation. Effective leadership is a cornerstone of creating a thriving organizational culture. We'll explore how leaders can model engaged and motivated behaviors, address challenges and setbacks, and ultimately drive a culture of motivation and engagement within the workplace.
 

@@ -1,5 +1,4 @@
-Chapter 16: The Costs of Disengaged and Demotivated Employees
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significant and often hidden costs associated with disengaged and demotivated employees in the workplace. Understanding these costs is essential for organizations seeking to promote workplace engagement, motivation, and the development of a thriving organizational culture.
 

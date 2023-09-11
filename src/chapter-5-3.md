@@ -1,5 +1,4 @@
-Chapter 12: Celebrating Milestones and Achievements
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of celebrating milestones and achievements in the workplace as a powerful strategy for promoting workplace engagement, motivation, and the cultivation of a thriving organizational culture.
 

@@ -1,5 +1,4 @@
-Chapter 14: Measuring the Effectiveness of Engagement and Motivation Strategies
-===============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the vital aspect of measuring the impact and effectiveness of engagement and motivation strategies in the workplace. Understanding how to assess these initiatives is essential for creating a thriving organizational culture based on data-driven improvements.
 

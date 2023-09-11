@@ -1,5 +1,4 @@
-Chapter 10: Encouraging Creativity and Innovation
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of encouraging creativity and innovation as essential components of promoting workplace engagement, motivation, and the development of a thriving organizational culture.
 

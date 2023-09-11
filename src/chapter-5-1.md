@@ -1,5 +1,4 @@
-Chapter 15: Providing Regular Feedback and Recognition
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the significance of providing regular feedback and recognition as fundamental elements for promoting workplace engagement, motivation, and the cultivation of a thriving organizational culture.
 

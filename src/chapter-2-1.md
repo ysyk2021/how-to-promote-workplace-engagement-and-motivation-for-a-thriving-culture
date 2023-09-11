@@ -1,5 +1,4 @@
-Chapter 1: What is Workplace Engagement and Motivation?
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Workplace engagement and motivation are fundamental concepts that underpin the foundation of a thriving organizational culture. In this chapter, we will explore and define these critical components, setting the stage for the strategies and insights that follow in the book.
 

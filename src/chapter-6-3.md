@@ -1,5 +1,4 @@
-Chapter 7: Offering Flexible Work Arrangements
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Flexibility in the workplace is a powerful tool for promoting engagement and motivation while nurturing a thriving organizational culture. In this chapter, we will explore the benefits and strategies of offering flexible work arrangements.
 
